@@ -118,7 +118,7 @@ Basically, take the same guidance as above: don't be messy, but if you are, clea
 
 [You really have to watch this](https://youtu.be/vVXIK1xCRpY)
 
-![Favourite horse picture](https://pferde-hunde-und-mehr.de/die-10-schoensten-pferderassen-der-welt/)
+![Favourite horse picture](Horse537.jpg)
 
 ## **Exercise4**
 
