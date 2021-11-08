@@ -118,7 +118,7 @@ Basically, take the same guidance as above: don't be messy, but if you are, clea
 
 [You really have to watch this](https://youtu.be/vVXIK1xCRpY)
 
-![Favourite horse picture](Horse537.jpg)
+![Favourite horse picture](https://commons.wikimedia.org/wiki/File:White_horse_in_field.jpg)
 
 ## **Exercise4**
 
